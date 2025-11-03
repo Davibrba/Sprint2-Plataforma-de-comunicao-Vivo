@@ -1,1 +1,0 @@
-# Sprint2---Plataforma-de-comunica-o
